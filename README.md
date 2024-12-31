@@ -1,1 +1,0 @@
-# Uninstalling-Removing-the-Game-Bar-for-any-windows-10-11
